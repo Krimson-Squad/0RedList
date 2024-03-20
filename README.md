@@ -10,3 +10,4 @@ A non-intentional research based repo. listing BLACK HAT TOOLS available open in
 3. **CREAL STEALER** | [Linvertise Link](https://link-hub.net/886759/creal-stealer-tool-2024) | [GP Link](https://clk.today/lvKK9ME)
 4. **XWorm V3.1 Cracked**  | [Linvertise Link](https://link-target.net/886759/xworm-v31-cracked-2024) | [GP Link](https://clk.today/5omuRso)
 5. **Silent Crypto Miner  v3.1** | [Linvertise Link](https://link-hub.net/886759/silent-crypto-miner-2024) | [GP Link](https://clk.today/yvKGKkq)
+6. **Venom RAT 5.6** | [Linvertise Link](https://link-hub.net/886759/venom-rat-5-activated) | [GP Link](https://clk.today/f50HZLaE)
